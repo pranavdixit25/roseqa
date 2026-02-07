@@ -140,7 +140,7 @@ My bubu 💕<br>
 My pyaari si kukku 😘<br><br>
 <strong>muuaaahhh meri jaan 💋</strong><br><br>
 Love,<br>
-<strong>Bubu ❤️</strong>
+<strong>Dubu ❤️</strong>
 </p>
 
 </body>
